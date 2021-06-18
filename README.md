@@ -1,0 +1,1 @@
+A donut is a small fried cake of sweetened dough, typically in the shape of a ball or ring.
